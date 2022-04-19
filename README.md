@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ANDREISTAIASA
+- 👀 I’m interested in FIVEM SCRIPTING
+- 🌱 I’m currently learning how to create mlo s and how to create scripts
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me don t 
